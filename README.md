@@ -11,5 +11,5 @@
 ![Screenshot 2024-02-28 084258-modified](https://github.com/nesrucodex/coli-for-collaboration/assets/155378885/ef383f92-bc60-43aa-b427-3cf12d588a21)
 ![Screenshot 2024-02-28 085119-modified (1)](https://github.com/nesrucodex/coli-for-collaboration/assets/155378885/b9ffa374-ebf9-4ab4-bb24-a0a3ac0ccbfa)
 
-![Screenshot 2024-02-28 085340-modified](https://github.com/nesrucodex/coli-for-collaboration/assets/155378885/664c8b07-3989-4d01-a8ea-fe0557045711)
-![Screenshot 2024-02-28 085225-modified](https://github.com/nesrucodex/coli-for-collaboration/assets/155378885/cce3b509-5c82-4dd8-8e95-ca54361af67e)
+
+
