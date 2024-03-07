@@ -9,7 +9,7 @@
 ![Screenshot 2024-02-28 084327-modified](https://github.com/nesrucodex/coli-for-collaboration/assets/155378885/fcffa16a-223c-4ceb-8a5f-58a4c45a354e)
 
 ![Screenshot 2024-02-28 084258-modified](https://github.com/nesrucodex/coli-for-collaboration/assets/155378885/ef383f92-bc60-43aa-b427-3cf12d588a21)
-![Screenshot 2024-02-28 085119-modified (1)](https://github.com/nesrucodex/coli-for-collaboration/assets/155378885/b9ffa374-ebf9-4ab4-bb24-a0a3ac0ccbfa)
+
 
 
 
